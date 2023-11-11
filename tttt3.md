@@ -5,7 +5,7 @@
 - New talents
 - More skill points
 - More difficulty
-2. This is a HORDE 50waves server just for fun!!!
-3. Respect all players and Staff !
+1. This is a HORDE 50waves server just for fun!!!
+2. Respect all players and Staff !
 ![HORDE INFO](https://i.postimg.cc/Dz2SVnvn/502.jpg)
 
