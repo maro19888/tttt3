@@ -1,21 +1,11 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/9MrfSv2D/banner.jpg)
-# WELCOME TO THE **Noobs Duels Server MODDED**
+![Noobs Duels Kingdom](https://i.postimg.cc/0NqpbT9B/50.webp)
+# WELCOME TO THE **Noobs Duels 50 WAVES HORDE MOD**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/zcntJHNF</>
-## Become a vip member [more info on discord]
-   *Vip Programs
-   *Vip Benefits
-   *Vip support
-# **THE RULES:**
-1. *NO TOXICITY*.
-   *NO FFA*.
-   *NO CHEATS*.
-   *NO TROLLS and BULLYING*.
-   *NO RACISM*.
-2. This is a *DUEL* SERVER. NO **FFA** only 1v1 duels
-3. Smoke bombs, fire bombs, bear traps, bows and toolbox are not allowed !!!
-4. Respect all players and Staff !
-![ROME](https://i.postimg.cc/N02Vz4Vg/banner2.jpg)
-**Our Admin Team:**
-![Staff](https://i.postimg.cc/8Cvm37pv/mordhau.jpg)
-Have fun!
-create by Markus Crassus
+- New NPCs
+- New talents
+- More skill points
+- More difficulty
+2. This is a HORDE 50waves server just for fun!!!
+3. Respect all players and Staff !
+![HORDE INFO](https://i.postimg.cc/Dz2SVnvn/502.jpg)
+
