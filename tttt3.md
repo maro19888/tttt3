@@ -1,6 +1,6 @@
 ![Noobs Duels Kingdom](https://i.postimg.cc/CLRhqd1R/50.jpg)
 # WELCOME TO THE **Noobs Duels 50 WAVES HORDE MOD**
-<a id="NOOBS DUELS DISCORD">https://discord.gg/zcntJHNF</>
+<a id="NOOBS DUELS DISCORD">https://discord.gg/8X36vKtv</>
 - New NPCs
 - New talents
 - More skill points
