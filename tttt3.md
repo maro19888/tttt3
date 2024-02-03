@@ -1,4 +1,4 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/CLRhqd1R/50.jpg)
+![Noobs Duels Kingdom](https://postimg.cc/N2MJqnjy/012736d4)
 # WELCOME TO THE **Noobs Duels [2]**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/nbs1</>
 - NO FFA
@@ -10,4 +10,4 @@
 3. Respect our rules and you will be respected too!
 ![HORDE INFO]([https://i.postimg.cc/4xGpwDD9/gtgtgtgt.jpg)
 !!!HAVE FUN!!!
-   create by Marcus
+created by Marcus
