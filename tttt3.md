@@ -3,10 +3,11 @@
 <a id="NOOBS DUELS DISCORD">https://discord.gg/nbs1</>
 - NO FFA
 - NO CHEATS
-- NO RACISM/NAZI
-- NO BULLY
+- NO RACISM/NAZISM
+- NO BULLYING
 1. Nazi outfit are not allowed
 2. Toolbox/bombs/traps/bows/throwable weapons not allowed
 3. Respect our rules and you will be respected too!
-![HORDE INFO](https://i.postimg.cc/PJbBZsGM/mord2-1.jpg)
-
+![HORDE INFO]([https://i.postimg.cc/4xGpwDD9/gtgtgtgt.jpg)
+!!!HAVE FUN!!!
+   create by Marcus
