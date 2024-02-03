@@ -8,5 +8,5 @@
 1. Nazi outfit are not allowed
 2. Toolbox/bombs/traps/bows/throwable weapons not allowed
 3. Respect our rules and you will be respected too!
-![Join and have FUN]([https://i.postimg.cc/cLq6cf8k/yyy222.jpg)
+![Join and have FUN](https://i.postimg.cc/cLq6cf8k/yyy222.jpg)
 created by Marcus
