@@ -1,4 +1,4 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/ZRL6GV6q/yyyyyyyy.jpg)
+![Noobs Duels Kingdom](https://i.postimg.cc/VL1ZBVb1/mordhau-knight-halberd-banner.jpg)
 # WELCOME TO THE **Noobs Duels Server**
 <a id="NOOBS DUELS DISCORD">https://discord.gg/nbs1</>
 - NO FFA
