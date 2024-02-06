@@ -1,4 +1,4 @@
-![Noobs Duels Kingdom](https://i.postimg.cc/nrCmLRMT/bannnnn.jpg)
+![Friendly Duels](https://i.postimg.cc/nrCmLRMT/bannnnn.jpg)
 # WELCOME TO THE **Friendly Gentlemans Duels**
 <a id="DISCORD">https://discord.gg/nbs1</>
 - NO FFA
