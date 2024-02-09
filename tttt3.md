@@ -1,5 +1,5 @@
 ![Friendly Duels](https://i.postimg.cc/nrCmLRMT/bannnnn.jpg)
-# WELCOME TO THE **Friendly Gentlemans Duels**
+# WELCOME TO THE **Noobs Duels™ [Training/Gentlemans Duels/NO FFA]**
 <a id="DISCORD">https://discord.gg/nbs1</>
 - NO FFA
 - NO CHEATS
