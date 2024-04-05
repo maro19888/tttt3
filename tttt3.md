@@ -1,6 +1,7 @@
-![Friendly Duels](https://i.postimg.cc/nrCmLRMT/bannnnn.jpg)
-# WELCOME TO THE **Noobs Duels™ [Training/Gentlemans Duels/NO FFA]**
+![Friendly Duels](https://i.postimg.cc/BZTT53qs/Little.png)
+# WELCOME TO THE **Little Noobs™ [Training/Gentlemans Duels/NO FFA]**
 <a id="DISCORD">https://discord.gg/nbs1</>
+- Its modded server like for !!!FUN!!!
 - NO FFA
 - NO CHEATS
 - NO RACISM/NAZISM
