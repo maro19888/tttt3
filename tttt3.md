@@ -1,13 +1,13 @@
-![Friendly Duels](https://i.postimg.cc/BZTT53qs/Little.png)
-# WELCOME TO THE **Little Noobs™ [Training/Gentlemans Duels/NO FFA]**
-<a id="DISCORD">https://discord.gg/nbs1</>
-- Its modded server like for !!!FUN!!!
-- NO FFA
+![Friendly Duels](https://i.postimg.cc/7hcjhxyC/maxresdefault.jpg)
+# WELCOME TO THE **Demon Noobs™ [New Horde Server]**
+<a id="DISCORD">https://discord.gg/noobs</>
+- Its DEMON HORDE NEW PATCH
+- NO TROLLING
 - NO CHEATS
 - NO RACISM/NAZISM
 - NO BULLYING
 1. Nazi outfit are not allowed
-2. Toolbox/bombs/traps/bows/throwable weapons not allowed
+2. Rude behavior in chat = mute/ban
 3. Respect our rules and you will be respected too!
-4. This is our new server with more performance.
+4. This is our new server with good performance.
 ![Join and have FUN]
