@@ -1,5 +1,5 @@
 ![Friendly Duels](https://i.postimg.cc/7hcjhxyC/maxresdefault.jpg)
-# WELCOME TO THE **Demon Noobs™ [New Horde Server]**
+# WELCOME TO THE **DEMON NOOBS™ [New Horde Server]**
 <a id="DISCORD">https://discord.gg/noobs</>
 - Its DEMON HORDE NEW PATCH
 - NO TROLLING
