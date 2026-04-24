@@ -1,6 +1,5 @@
 # WELCOME TO THE **INSOMNIA DUELS [New Server]**
 <a id="DISCORD">we dont need discord we need play
-- Little Rules
 - NO TROLLING
 - NO CHEATS
 - NO RACISM/NAZISM
