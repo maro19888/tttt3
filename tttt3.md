@@ -1,5 +1,5 @@
 ![Insomnia Duels](https://i.postimg.cc/s2bcCX8H/4a6bb966-be94-447b-8f2e-41ef4cb24f4b.png)
-# WELCOME TO THE **INSOMNIA DUELS™ [New Server]**
+# WELCOME TO THE **INSOMNIA DUELS [New Server]**
 <a id="DISCORD">we dont need discord we need play
 - Little Rules
 - NO TROLLING
