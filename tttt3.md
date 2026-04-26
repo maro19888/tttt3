@@ -9,4 +9,4 @@
 3. Respect our rules and you will be respected too!
 4. 120 tickrate
 ![Join and have FUN]
-https://i.postimg.cc/g0bLzKnv/xxxxxxx.png
+   (https://i.postimg.cc/g0bLzKnv/xxxxxxx.png)
