@@ -10,5 +10,6 @@
 2. Rude behavior in chat = mute/ban
 3. Respect our rules and you will be respected too!
 4. FFA = jail,warn,kick,ban
-5. 120 tickrate
+5. You can be Bot one time :D
+6. 120 tickrate
 [Join and have FUN]
