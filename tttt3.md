@@ -1,4 +1,4 @@
-# WELCOME TO THE Bots Duels
+# Bots Duels
 ***RULES***
 - NO TROLLING
 - NO CHEATS
